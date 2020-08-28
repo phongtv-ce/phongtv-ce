@@ -1,4 +1,8 @@
 ### Hi there 👋
+### I'm Thai Viet Phong
+### I'm live in HCM city
+### 💬 Programming make me happy.
+### 📫 How to reach me: fb.com/phongtv.ce
 
 <!--
 **phongtv-ce/phongtv-ce** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
