@@ -1,3 +1,3 @@
-_**Fear kills more dreams than failure ever will.**_
+_**Your life does not get better by chance. It gets better by change.**_
 
-Dale Patridge
+Jim Rohn
