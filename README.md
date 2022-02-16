@@ -1,3 +1,3 @@
-_**We lose ourselves in the things we love. We find ourselves there, too.**_
+_**If you like what you do, and you're lucky enough to be good at it, do it for that reason.**_
 
-Dale Patridge
+Phil Grimshaw
