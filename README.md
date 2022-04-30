@@ -1,3 +1,3 @@
-_**The real opportunity for success lies within the person and not in the job.**_
+_**We lose ourselves in the things we love. We find ourselves there, too.**_
 
-Zig Ziglar
+Dale Patridge
