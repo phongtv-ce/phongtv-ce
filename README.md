@@ -1,3 +1,3 @@
-_**If you don't have confidence, you'll always find a way not to win**_
+_**Do the best you can until you know better. Then when you know better, do better.**_
 
-Carl Lewis
+Maya Angelou
