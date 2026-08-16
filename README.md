@@ -1,3 +1,3 @@
-_**Plant your own garden and decorate your own soul, instead of waiting for someone to bring you flowers.**_
+_**No masterpiece was ever created by a lazy artist.**_
 
-Veronica A. Shoffstall
+Anonymous
