@@ -1,3 +1,3 @@
-_**No masterpiece was ever created by a lazy artist.**_
+_**Happiness is a butterfly, which when pursued, is always beyond your grasp, but which, if you will sit down quietly, may alight upon you.**_
 
-Anonymous
+Nathaniel Hawthorne
