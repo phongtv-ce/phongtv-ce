@@ -1,3 +1,3 @@
-_**Happiness is a butterfly, which when pursued, is always beyond your grasp, but which, if you will sit down quietly, may alight upon you.**_
+_**Blessed are those who can give without remembering and take without forgetting.**_
 
-Nathaniel Hawthorne
+Anonymous
