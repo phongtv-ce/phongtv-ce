@@ -1,3 +1,3 @@
-_**Blessed are those who can give without remembering and take without forgetting.**_
+_**Do one thing every day that scares you.**_
 
 Anonymous
