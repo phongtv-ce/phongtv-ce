@@ -1,3 +1,3 @@
-_**What's the point of being alive if you don't at least try to do something remarkable.**_
+_**Life is not about finding yourself. Life is about creating yourself.**_
 
-Anonymous
+Lolly Daskal
