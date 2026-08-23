@@ -1,3 +1,3 @@
-_**Life is not about finding yourself. Life is about creating yourself.**_
+_**Nothing in the world is more common than unsuccessful people with talent.**_
 
-Lolly Daskal
+Anonymous
