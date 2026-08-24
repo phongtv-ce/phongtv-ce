@@ -1,3 +1,3 @@
-_**Nothing in the world is more common than unsuccessful people with talent.**_
+_**Knowledge is being aware of what you can do. Wisdom is knowing when not to do it.**_
 
 Anonymous
