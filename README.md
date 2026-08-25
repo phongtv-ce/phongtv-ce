@@ -1,3 +1,3 @@
-_**Knowledge is being aware of what you can do. Wisdom is knowing when not to do it.**_
+_**Your problem isn't the problem. Your reaction is the problem.**_
 
 Anonymous
