@@ -1,3 +1,3 @@
-_**Your problem isn't the problem. Your reaction is the problem.**_
+_**You can do anything, but not everything.**_
 
 Anonymous
