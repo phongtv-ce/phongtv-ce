@@ -1,3 +1,3 @@
-_**You can do anything, but not everything.**_
+_**Innovation distinguishes between a leader and a follower.**_
 
-Anonymous
+Steve Jobs
