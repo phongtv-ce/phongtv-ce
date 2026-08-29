@@ -1,3 +1,3 @@
-_**There are two types of people who will tell you that you cannot make a difference in this world: those who are afraid to try and those who are afraid you will succeed.**_
+_**Thinking should become your capital asset, no matter whatever ups and downs you come across in your life.**_
 
-Ray Goforth
+Dr. APJ Kalam
