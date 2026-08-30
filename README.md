@@ -1,3 +1,3 @@
-_**Thinking should become your capital asset, no matter whatever ups and downs you come across in your life.**_
+_**I find that the harder I work, the more luck I seem to have.**_
 
-Dr. APJ Kalam
+Thomas Jefferson
