@@ -1,3 +1,3 @@
-_**The starting point of all achievement is desire.**_
+_**Success is the sum of small efforts, repeated day-in and day-out.**_
 
-Napolean Hill
+Robert Collier
