@@ -1,3 +1,3 @@
-_**Success is the sum of small efforts, repeated day-in and day-out.**_
+_**If you want to achieve excellence, you can get there today. As of this second, quit doing less-than-excellent work.**_
 
-Robert Collier
+Thomas J. Watson
