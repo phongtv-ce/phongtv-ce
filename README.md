@@ -1,3 +1,3 @@
-_**If you want to achieve excellence, you can get there today. As of this second, quit doing less-than-excellent work.**_
+_**All progress takes place outside the comfort zone.**_
 
-Thomas J. Watson
+Michael John Bobak
