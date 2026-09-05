@@ -1,3 +1,3 @@
-_**You may only succeed if you desire succeeding; you may only fail if you do not mind failing.**_
+_**Courage is resistance to fear, mastery of fear - not absense of fear.**_
 
-Philippos
+Mark Twain
