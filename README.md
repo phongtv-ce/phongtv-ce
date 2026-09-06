@@ -1,3 +1,3 @@
-_**Courage is resistance to fear, mastery of fear - not absense of fear.**_
+_**Only put off until tomorrow what you are willing to die having left undone.**_
 
-Mark Twain
+Pablo Picasso
