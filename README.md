@@ -1,3 +1,3 @@
-_**Only put off until tomorrow what you are willing to die having left undone.**_
+_**People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily.**_
 
-Pablo Picasso
+Zig Ziglar
