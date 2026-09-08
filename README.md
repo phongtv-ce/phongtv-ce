@@ -1,3 +1,3 @@
-_**People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily.**_
+_**We become what we think about most of the time, and that's the strangest secret.**_
 
-Zig Ziglar
+Earl Nightingale
