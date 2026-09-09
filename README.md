@@ -1,3 +1,3 @@
-_**We become what we think about most of the time, and that's the strangest secret.**_
+_**The only place where success comes before work is in the dictionary.**_
 
-Earl Nightingale
+Vidal Sassoon
