@@ -1,3 +1,3 @@
-_**The only place where success comes before work is in the dictionary.**_
+_**The best reason to start an organization is to make meaning; to create a product or service to make the world a better place.**_
 
-Vidal Sassoon
+Guy Kawasaki
