@@ -1,3 +1,3 @@
-_**The best reason to start an organization is to make meaning; to create a product or service to make the world a better place.**_
+_**I find that when you have a real interest in life and a curious life, that sleep is not the most important thing.**_
 
-Guy Kawasaki
+Martha Stewart
