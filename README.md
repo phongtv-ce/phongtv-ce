@@ -1,3 +1,3 @@
-_**It's not what you look at that matters, it's what you see.**_
+_**The road to success and the road to failure are almost exactly the same.**_
 
-Anonymous
+Colin R. Davis
