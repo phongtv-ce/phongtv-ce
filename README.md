@@ -1,3 +1,3 @@
-_**The road to success and the road to failure are almost exactly the same.**_
+_**The function of leadership is to produce more leaders, not more followers.**_
 
-Colin R. Davis
+Ralph Nader
