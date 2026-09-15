@@ -1,3 +1,3 @@
-_**The function of leadership is to produce more leaders, not more followers.**_
+_**Success is liking yourself, liking what you do, and liking how you do it.**_
 
-Ralph Nader
+Maya Angelou
