@@ -1,3 +1,3 @@
-_**Success is liking yourself, liking what you do, and liking how you do it.**_
+_**As we look ahead into the next century, leaders will be those who empower others.**_
 
-Maya Angelou
+Bill Gates
