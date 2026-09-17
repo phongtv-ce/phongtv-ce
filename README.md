@@ -1,3 +1,3 @@
-_**As we look ahead into the next century, leaders will be those who empower others.**_
+_**A real entrepreneur is somebody who has no safety net underneath them.**_
 
-Bill Gates
+Henry Kravis
