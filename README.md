@@ -1,3 +1,3 @@
-_**A real entrepreneur is somebody who has no safety net underneath them.**_
+_**The first step toward success is taken when you refuse to be a captive of the environment in which you first find yourself.**_
 
-Henry Kravis
+Mark Caine
