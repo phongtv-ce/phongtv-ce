@@ -1,3 +1,3 @@
-_**The first step toward success is taken when you refuse to be a captive of the environment in which you first find yourself.**_
+_**People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed. Similarly, when someone is failing, the tendency is to get on a downward spiral that can even become a self-fulfilling prophecy.**_
 
-Mark Caine
+Tony Robbins
