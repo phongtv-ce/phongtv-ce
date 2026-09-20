@@ -1,3 +1,3 @@
-_**People who succeed have momentum. The more they succeed, the more they want to succeed, and the more they find a way to succeed. Similarly, when someone is failing, the tendency is to get on a downward spiral that can even become a self-fulfilling prophecy.**_
+_**When I dare to be powerful - to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.**_
 
-Tony Robbins
+Audre Lorde
