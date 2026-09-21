@@ -1,3 +1,3 @@
-_**When I dare to be powerful - to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.**_
+_**Whenever you find yourself on the side of the majority, it is time to pause and reflect.**_
 
-Audre Lorde
+Mark Twain
