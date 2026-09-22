@@ -1,3 +1,3 @@
-_**Whenever you find yourself on the side of the majority, it is time to pause and reflect.**_
+_**The successful warrior is the average man, with laser-like focus.**_
 
-Mark Twain
+Bruce Lee
