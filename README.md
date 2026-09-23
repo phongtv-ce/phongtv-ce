@@ -1,3 +1,3 @@
-_**The successful warrior is the average man, with laser-like focus.**_
+_**Take up one idea. Make that one idea your life -- think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.**_
 
-Bruce Lee
+Swami Vivekananda
