@@ -1,3 +1,3 @@
-_**Develop success from failures. Discouragement and failure are two of the surest stepping stones to success.**_
+_**If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.**_
 
-Dale Carnegie
+Jim Rohn
