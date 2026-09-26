@@ -1,3 +1,3 @@
-_**If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.**_
+_**If you genuinely want something, don't wait for it -- teach yourself to be impatient.**_
 
-Jim Rohn
+Gurbaksh Chahal
