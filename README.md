@@ -1,3 +1,3 @@
-_**If you genuinely want something, don't wait for it -- teach yourself to be impatient.**_
+_**Don't let the fear of losing be greater than the excitement of winning.**_
 
-Gurbaksh Chahal
+Robert Kiyosaki
