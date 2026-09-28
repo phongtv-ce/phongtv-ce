@@ -1,3 +1,3 @@
-_**Don't let the fear of losing be greater than the excitement of winning.**_
+_**If you want to make a permanent change, stop focusing on the size of your problems and start focusing on the size of you!**_
 
-Robert Kiyosaki
+T. Harv Eker
