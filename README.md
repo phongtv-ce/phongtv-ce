@@ -1,3 +1,3 @@
-_**Successful people do what unsuccessful people are not willing to do. Don't wish it were easier, wish you were better.**_
+_**The number one reason people fail in life is because they listen to their friends, family, and neighbors.**_
 
-Jim Rohn
+Napoleon Hill
