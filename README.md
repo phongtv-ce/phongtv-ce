@@ -1,3 +1,3 @@
-_**In my experience, there is only one motivation, and that is desire. No reasons or principle contain it or stand against it.**_
+_**Success does not consist in never making mistakes but in never making the same one a second time.**_
 
-Jane Smiley
+George Bernard Shaw
