@@ -1,3 +1,3 @@
-_**You must expect great things of yourself before you can do them.**_
+_**Motivation is what gets you started. Habit is what keeps you going.**_
 
-Michael Jordan
+Jim Ryun
