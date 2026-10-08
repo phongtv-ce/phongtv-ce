@@ -1,3 +1,3 @@
-_**Motivation is what gets you started. Habit is what keeps you going.**_
+_**People rarely succeed unless they have fun in what they are doing.**_
 
-Jim Ryun
+Dale Carnegie
