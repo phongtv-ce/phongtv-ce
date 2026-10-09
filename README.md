@@ -1,3 +1,3 @@
-_**People rarely succeed unless they have fun in what they are doing.**_
+_**There is no chance, no destiny, no fate, that can hinder or control the firm resolve of a determined soul.**_
 
-Dale Carnegie
+Ella Wheeler Wilcox
