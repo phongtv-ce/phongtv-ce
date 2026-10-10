@@ -1,3 +1,3 @@
-_**There is no chance, no destiny, no fate, that can hinder or control the firm resolve of a determined soul.**_
+_**Our greatest fear should not be of failure but of succeeding at things in life that don't really matter.**_
 
-Ella Wheeler Wilcox
+Francis Chan
