@@ -1,3 +1,3 @@
-_**Our greatest fear should not be of failure but of succeeding at things in life that don't really matter.**_
+_**You've got to get up every morning with determination if you're going to go to bed with satisfaction.**_
 
-Francis Chan
+George Lorimer
