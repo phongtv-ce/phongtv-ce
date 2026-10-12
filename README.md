@@ -1,3 +1,3 @@
-_**You've got to get up every morning with determination if you're going to go to bed with satisfaction.**_
+_**To be successful you must accept all challenges that come your way. You can't just accept the ones you like.**_
 
-George Lorimer
+Mike Gafka
