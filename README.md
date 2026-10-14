@@ -1,3 +1,3 @@
-_**Success is...knowing your purpose in life, growing to reach your maximum potential, and sowing seeds that benefit others.**_
+_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
 
-John C. Maxwell
+Wayne Dyer
