@@ -1,3 +1,3 @@
-_**Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.**_
+_**To accomplish great things, we must not only act, but also dream, not only plan, but also believe.**_
 
-Wayne Dyer
+Anatole France
