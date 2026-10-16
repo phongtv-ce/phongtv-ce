@@ -1,3 +1,3 @@
-_**To accomplish great things, we must not only act, but also dream, not only plan, but also believe.**_
+_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no help at all.**_
 
-Anatole France
+Dale Carnegie
