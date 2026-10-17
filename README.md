@@ -1,3 +1,3 @@
-_**Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no help at all.**_
+_**You measure the size of the accomplishment by the obstacles you had to overcome to reach your goals.**_
 
-Dale Carnegie
+Booker T. Washington
