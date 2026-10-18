@@ -1,3 +1,3 @@
-_**You measure the size of the accomplishment by the obstacles you had to overcome to reach your goals.**_
+_**Real difficulties can be overcome; it is only the imaginary ones that are unconquerable.**_
 
-Booker T. Washington
+Theodore N. Vail
