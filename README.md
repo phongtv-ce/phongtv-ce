@@ -1,3 +1,3 @@
-_**Real difficulties can be overcome; it is only the imaginary ones that are unconquerable.**_
+_**It is better to fail in originality than to succeed in imitation.**_
 
-Theodore N. Vail
+Herman Melville
