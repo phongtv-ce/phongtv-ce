@@ -1,3 +1,3 @@
-_**It is better to fail in originality than to succeed in imitation.**_
+_**Fortune sides with him who dares.**_
 
-Herman Melville
+Virgil
