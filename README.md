@@ -1,3 +1,3 @@
-_**Little minds are tamed and subdued by misfortune; but great minds rise above it.**_
+_**Failure is the condiment that gives success its flavor.**_
 
-Washington Irving
+Truman Capote
