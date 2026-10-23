@@ -1,3 +1,3 @@
-_**Failure is the condiment that gives success its flavor.**_
+_**Don't let what you cannot do interfere with what you can do.**_
 
-Truman Capote
+John R. Wooden
