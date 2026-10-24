@@ -1,3 +1,3 @@
-_**Don't let what you cannot do interfere with what you can do.**_
+_**You may have to fight a battle more than once to win it.**_
 
-John R. Wooden
+Margaret Thatcher
