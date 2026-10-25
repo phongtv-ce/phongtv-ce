@@ -1,3 +1,3 @@
-_**You may have to fight a battle more than once to win it.**_
+_**If you want to achieve greatness stop asking for permission.**_
 
-Margaret Thatcher
+Anonymous
