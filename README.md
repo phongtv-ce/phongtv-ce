@@ -1,3 +1,3 @@
-_**To live a creative life, we must lose our fear of being wrong.**_
+_**If you are not willing to risk the usual you will have to settle for the ordinary.**_
 
-Anonymous
+Jim Rohn
