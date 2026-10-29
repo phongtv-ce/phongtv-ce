@@ -1,3 +1,3 @@
-_**If you are not willing to risk the usual you will have to settle for the ordinary.**_
+_**Trust because you are willing to accept the risk, not because it's safe or certain.**_
 
-Jim Rohn
+Anonymous
