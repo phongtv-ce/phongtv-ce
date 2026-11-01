@@ -1,3 +1,3 @@
-_**All our dreams can come true if we have the courage to pursue them.**_
+_**Good things come to people who wait, but better things come to those who go out and get them.**_
 
-Walt Disney
+Anonymous
