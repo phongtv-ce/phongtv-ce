@@ -1,3 +1,3 @@
-_**Good things come to people who wait, but better things come to those who go out and get them.**_
+_**If you do what you always did, you will get what you always got.**_
 
 Anonymous
