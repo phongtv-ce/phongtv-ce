@@ -1,3 +1,3 @@
-_**If you do what you always did, you will get what you always got.**_
+_**Success is walking from failure to failure with no loss of enthusiasm.**_
 
-Anonymous
+Winston Churchill
