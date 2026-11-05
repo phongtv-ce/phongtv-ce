@@ -1,3 +1,3 @@
-_**Just when the caterpillar thought the world was ending, he turned into a butterfly.**_
+_**Successful entrepreneurs are givers and not takers of positive energy.**_
 
-Proverb
+Anonymous
