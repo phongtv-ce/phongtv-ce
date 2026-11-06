@@ -1,3 +1,3 @@
-_**Successful entrepreneurs are givers and not takers of positive energy.**_
+_**Whenever you see a successful person you only see the public glories, never the private sacrifices to reach them.**_
 
-Anonymous
+Vaibhav Shah
