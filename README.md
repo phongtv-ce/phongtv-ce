@@ -1,3 +1,3 @@
-_**Opportunities don't happen, you create them.**_
+_**Try not to become a person of success, but rather try to become a person of value.**_
 
-Chris Grosser
+Albert Einstein
