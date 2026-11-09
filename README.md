@@ -1,3 +1,3 @@
-_**Try not to become a person of success, but rather try to become a person of value.**_
+_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
 
-Albert Einstein
+Eleanor Roosevelt
