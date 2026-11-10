@@ -1,3 +1,3 @@
-_**Great minds discuss ideas; average minds discuss events; small minds discuss people.**_
+_**I have not failed. I've just found 10,000 ways that won't work.**_
 
-Eleanor Roosevelt
+Thomas A. Edison
