@@ -1,3 +1,3 @@
-_**I have not failed. I've just found 10,000 ways that won't work.**_
+_**If you don't value your time, neither will others. Stop giving away your time and talents- start charging for it.**_
 
-Thomas A. Edison
+Kim Garst
