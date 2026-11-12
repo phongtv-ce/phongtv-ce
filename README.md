@@ -1,3 +1,3 @@
-_**If you don't value your time, neither will others. Stop giving away your time and talents- start charging for it.**_
+_**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**_
 
-Kim Garst
+David Brinkley
