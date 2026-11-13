@@ -1,3 +1,3 @@
-_**A successful man is one who can lay a firm foundation with the bricks others have thrown at him.**_
+_**No one can make you feel inferior without your consent.**_
 
-David Brinkley
+Eleanor Roosevelt
