@@ -1,3 +1,3 @@
-_**No one can make you feel inferior without your consent.**_
+_**The whole secret of a successful life is to find out what is one's destiny to do, and then do it.**_
 
-Eleanor Roosevelt
+Henry Ford
