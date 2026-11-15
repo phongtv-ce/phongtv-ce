@@ -1,3 +1,3 @@
-_**The whole secret of a successful life is to find out what is one's destiny to do, and then do it.**_
+_**If you're going through hell keep going.**_
 
-Henry Ford
+Winston Churchill
