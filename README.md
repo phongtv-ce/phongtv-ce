@@ -1,3 +1,3 @@
-_**If you're going through hell keep going.**_
+_**Don't raise your voice, improve your argument.**_
 
-Winston Churchill
+Anonymous
