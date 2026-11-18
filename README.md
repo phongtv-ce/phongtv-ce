@@ -1,3 +1,3 @@
-_**Don't raise your voice, improve your argument.**_
+_**What seems to us as bitter trials are often blessings in disguise.**_
 
-Anonymous
+Oscar Wilde
