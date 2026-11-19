@@ -1,3 +1,3 @@
-_**What seems to us as bitter trials are often blessings in disguise.**_
+_**The meaning of life is to find your gift. The purpose of life is to give it away.**_
 
-Oscar Wilde
+Anonymous
