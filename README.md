@@ -1,3 +1,3 @@
-_**The meaning of life is to find your gift. The purpose of life is to give it away.**_
+_**The distance between insanity and genius is measured only by success.**_
 
-Anonymous
+Bruce Feirstein
