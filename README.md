@@ -1,3 +1,3 @@
-_**The distance between insanity and genius is measured only by success.**_
+_**When you stop chasing the wrong things you give the right things a chance to catch you.**_
 
-Bruce Feirstein
+Lolly Daskal
