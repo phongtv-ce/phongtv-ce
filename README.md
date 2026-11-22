@@ -1,3 +1,3 @@
-_**When you stop chasing the wrong things you give the right things a chance to catch you.**_
+_**Don't be afraid to give up the good to go for the great.**_
 
-Lolly Daskal
+John D. Rockefeller
