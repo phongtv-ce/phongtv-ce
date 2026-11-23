@@ -1,3 +1,3 @@
-_**Don't be afraid to give up the good to go for the great.**_
+_**No masterpiece was ever created by a lazy artist.**_
 
-John D. Rockefeller
+Anonymous
