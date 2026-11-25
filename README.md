@@ -1,3 +1,3 @@
-_**Happiness is a butterfly, which when pursued, is always beyond your grasp, but which, if you will sit down quietly, may alight upon you.**_
+_**If you can't explain it simply, you don't understand it well enough.**_
 
-Nathaniel Hawthorne
+Albert Einstein
