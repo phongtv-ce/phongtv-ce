@@ -1,3 +1,3 @@
-_**If you can't explain it simply, you don't understand it well enough.**_
+_**Blessed are those who can give without remembering and take without forgetting.**_
 
-Albert Einstein
+Anonymous
